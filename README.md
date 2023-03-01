@@ -1,12 +1,6 @@
 # Quiz1
 
-My-Likes
-Playing Dota
-Playing ML
-Playing Basketball
-Playing CSGO
-Eating
-Gym
-Running
-Riding Motorcycle
-Hiking
+Groupmates
+Joshua Orozco
+Ferdinand Inchoco
+Micah Arayan
