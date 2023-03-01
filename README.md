@@ -1,6 +1,9 @@
 # Quiz1
 
-Group Members
-Joshua Orozco
-Ferdinand Inchoco
-Micah Arayan
+5 Dislikes
+
+oily foods
+strict people
+stress
+anxiety
+Depress
