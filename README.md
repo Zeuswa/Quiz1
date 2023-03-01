@@ -1,9 +1,14 @@
 # Quiz1
 
-5 Dislikes
+My-Likes
 
-oily foods
-strict people
-stress
-anxiety
-Depress
+Playing Online games
+Playing physical games
+Reading
+Eating
+Sleeping
+Riding motorcycle
+staying outside
+Going outdoor
+Hiking
+Drinking 
